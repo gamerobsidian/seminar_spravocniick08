@@ -1,0 +1,1 @@
+# seminar_spravocniick08
